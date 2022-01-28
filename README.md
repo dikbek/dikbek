@@ -1,4 +1,4 @@
-### Hi there 👋
+### Yo 👋
 
 I'm Richard. I've been an illustrator and graphic designer since 2004. 
 
